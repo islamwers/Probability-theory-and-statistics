@@ -20,4 +20,4 @@
 
 🚀 Удачи в выполнении домашних заданий!
 
-
+Home assingment 2 лежит по ссылке в виде онлайн теста -> https://docs.google.com/forms/d/e/1FAIpQLSfBH2XwS5qTqJk6RRVelY6E_YM963xQBSk40aUdinuOiBN6_w/viewform?usp=dialog
